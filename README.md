@@ -1,4 +1,4 @@
-# Privacy Policy for Mystic Tarot
+# Privacy Policy for Tarot
 
 **Effective Date: September 27, 2026
 
